@@ -1,1 +1,1 @@
-https://shishpalchauhan288.github.io/DEC-21-WEBFUNDAMENTAL/
+https://shishpalchauhan288.github.io/DEC-21-WEBFUNDAMENTAL/INDEX.HTML
